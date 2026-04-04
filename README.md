@@ -1,12 +1,12 @@
 <div align="center">
 <img width="1250" height="74" alt="Untitled2425-20230708184656" src="https://github.com/user-attachments/assets/3557105f-ed0b-4fe0-93c9-2c691cd9e373" />
   
-### [ LAYER 7-4: ..LIKE ANTTENAS TO HEAVEN ]
+### [ SOMEWHERE IN HELL ]
 ![Profile views](https://komarev.com/ghpvc/?username=N0L1H0L1C&color=%236f00af)
 
 ![tumblr_3237e115f1a71f8256ea531931f091ba_be1cf635_400](https://github.com/user-attachments/assets/35f217b4-2e69-4bd6-8ac3-1a77312ae419)
 
-<img width="573" height="525" alt="9b5aeda7550e07d25ed436fbfeeefa1c" src="https://github.com/user-attachments/assets/d4ad5a4e-26b4-466c-81f4-91cf262cca3a" />
+![7314](https://github.com/user-attachments/assets/fec9fc5b-f561-4b10-a8e4-dcc1b0b0eff6)
 
 <img width="625" height="30" alt="5e0c488c" src="https://github.com/user-attachments/assets/ff5e2f82-ea18-4ab0-8e9f-fb0a3310a372" />
 
