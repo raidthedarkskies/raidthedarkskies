@@ -4,9 +4,9 @@
 ### [ JIGOKU ]
 ![Profile views](https://komarev.com/ghpvc/?username=N0L1H0L1C&color=%236f00af)
 
-<img width="500" height="325" alt="a" src="https://github.com/user-attachments/assets/2e0c1f50-8fd1-441a-91c4-b9398d6a3ad5" />
+<img width="400" height="6" alt="tumblr_3237e115f1a71f8256ea531931f091ba_be1cf635_400" src="https://github.com/user-attachments/assets/c9195c12-9ce4-4914-962c-455818816e97" />
 
-![7314](https://github.com/user-attachments/assets/fec9fc5b-f561-4b10-a8e4-dcc1b0b0eff6)
+<img width="500" height="325" alt="a" src="https://github.com/user-attachments/assets/2e0c1f50-8fd1-441a-91c4-b9398d6a3ad5" />
 
 <img width="625" height="30" alt="5e0c488c" src="https://github.com/user-attachments/assets/ff5e2f82-ea18-4ab0-8e9f-fb0a3310a372" />
 
