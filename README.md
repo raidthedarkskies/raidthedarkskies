@@ -10,7 +10,7 @@
 
 <img width="625" height="30" alt="5e0c488c" src="https://github.com/user-attachments/assets/ff5e2f82-ea18-4ab0-8e9f-fb0a3310a372" />
 
-`call me rai or sen. either is fine.`
+`call me rae or sen. either is fine.`
 
 `prns: he/him, genderfluid.`
 
