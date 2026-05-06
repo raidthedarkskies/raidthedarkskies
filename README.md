@@ -27,7 +27,7 @@
 
 `IMPORTANT INFO!!`
 
-`i have touch trigger ingame, please do not make this mistake.`
+`i WILL block you if you dont respect me at all.`
   <details>
     <summary>before you interact!</summary>
     <p>
